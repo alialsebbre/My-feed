@@ -28,3 +28,5 @@ https://drive.google.com/file/d/127QztPHkIifxyU6JelddWhFg34pe9-zO/view?usp=shari
 
 vusolo2-test
 https://drive.google.com/file/d/1P66-4cQE_viG7ixIJ0O8ujGShneEMhSU/view?usp=sharing
+
+ EDISION osmio4kplus
